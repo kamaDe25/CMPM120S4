@@ -1,7 +1,7 @@
 ## About this project-------------------------
 rgiuahr
 ## Our favorite games----------------------
-fdsdgfhs
+Fallen London and The Longing
 ## How to build--------------------------
 dgzsdafg
 ## How to use
